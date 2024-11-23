@@ -7,7 +7,7 @@ Moreover, from the speakers' personal stories and experiences, we gained valuabl
 
  I’m excited and can't wait to apply these knowledge persuasive advice in my journey of pursuing my career goals! 🚀 
 
-This is the attachment of the poster.
+This is the attachment of the poster. [Group 7 Assignment (2).pdf](https://github.com/user-attachments/files/17880228/Group.7.Assignment.2.pdf)
 
 <p align="center">
   <img src = "https://github.com/user-attachments/assets/53dfa6d6-96a8-4fc8-bae9-f343f7b4dff7" width="800" height="1200"/>
