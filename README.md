@@ -8,7 +8,7 @@ Moreover, from the speakers' personal stories and experiences, we gained valuabl
  I’m excited and can't wait to apply these knowledge persuasive advice in my journey of pursuing my career goals! 🚀 
 
 This is the attachment of the poster.
-![image](https://github.com/user-attachments/assets/a42d5d4e-7a3c-42ad-91a8-ee99dec95366)
+
 <p align="center">
-  <img src = "https://github.com/user-attachments/assets/0205ad31-8b33-4c91-aea6-7166e492b9eb" width="800" height="1200"/>
+  <img src = "https://github.com/user-attachments/assets/53dfa6d6-96a8-4fc8-bae9-f343f7b4dff7" width="800" height="1200"/>
 </p>
