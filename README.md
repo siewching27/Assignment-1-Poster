@@ -9,5 +9,5 @@ Moreover, from the speakers' personal stories and experiences, we gained valuabl
 
 This is the attachment of the poster.
 <p align="center">
-  <img src = "https://github.com/user-attachments/assets/20b1448a-77d4-434b-b436-db5127d82e3f" width="800" height="1200"/>
+  <img src = "https://github.com/user-attachments/assets/0205ad31-8b33-4c91-aea6-7166e492b9eb" width="800" height="1200"/>
 </p>
