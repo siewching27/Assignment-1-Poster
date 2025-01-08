@@ -1,4 +1,4 @@
-# Assignment-1-Poster
+# Poster
 ✨Industrial Talk with PETRONAS Digital's Young Graduate Programme (YGP)🎉
 
 I had attend a talk regarding to PETRONAS Digital's Young Graduate Programme (YDP). The talk about YDP provides comprehensive information and valuable insights into career development. It highlights the three main roles offered—Software Engineer (SE), Data Engineer (DE), and Data Scientist (DS)—detailing their job scopes, required skills, and key difference. 
