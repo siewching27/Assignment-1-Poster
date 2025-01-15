@@ -5,7 +5,7 @@ I had attend a talk regarding to PETRONAS Digital's Young Graduate Programme (YD
 
 Moreover, from the speakers' personal stories and experiences, we gained valuable tips for navigating our future careers effectively. Overall, lifelong learning, aligning passions with career goals, and proactiveness are essential for enhancing performance and addressing challenges in the technology industry
 
- I’m excited and can't wait to apply these knowledge persuasive advice in my journey of pursuing my career goals! 🚀 
+To improve myself, I will commit to continuous learning by staying updated on the latest trends and advancements in the technology industry. Attending workshops, earning relevant certifications, and participating in online courses will help me sharpen my skills and gain new perspectives. Additionally, I will seek mentorship from experienced professionals and actively apply the knowledge I gain to real-world challenges, ensuring consistent growth and improvement. 🚀
 
 This is the attachment of the poster. [Group 7 Assignment (2).pdf](https://github.com/user-attachments/files/17880228/Group.7.Assignment.2.pdf)
 
