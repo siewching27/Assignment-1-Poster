@@ -8,8 +8,9 @@ Moreover, from the speakers' personal stories and experiences, we gained valuabl
 To improve myself, I will commit to **continuous learning** by staying updated on the latest trends and advancements in the technology industry. Attending workshops, earning relevant certifications, and participating in online courses will help me sharpen my skills and gain new perspectives. Additionally, I will **seek mentorship** from experienced professionals and actively apply the knowledge I gain to real-world challenges, ensuring consistent growth and improvement. 🚀
 
 ## 📌 Poster Attachment
-📄[Group 7 Assignment (2).pdf](https://github.com/user-attachments/files/17880228/Group.7.Assignment.2.pdf)
-
+[📄 Group 7 Assignment (2).pdf](https://github.com/user-attachments/files/17880228/Group.7.Assignment.2.pdf)”
+<br>
+<br>
 <p align="center">
   <img src = "https://github.com/user-attachments/assets/53dfa6d6-96a8-4fc8-bae9-f343f7b4dff7" width="800" height="1200"/>
 </p>
